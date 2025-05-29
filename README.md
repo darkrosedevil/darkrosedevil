@@ -1,16 +1,21 @@
-## Hi there 👋
-
-<!--
-**darkrosedevil/darkrosedevil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ![](https://komarev.com/ghpvc/?username=darkrosedevil&color=cb002c&style=for-the-badge&label=visitors&abbreviated=true) [<img src="[https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0cab738a-6e50-4d05-9999-4aa73bf635df/dg9r6kp-a272bcdd-674f-47ce-b63a-cb1a2df16540.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzBjYWI3MzhhLTZlNTAtNGQwNS05OTk5LTRhYTczYmY2MzVkZlwvZGc5cjZrcC1hMjcyYmNkZC02NzRmLTQ3Y2UtYjYzYS1jYjFhMmRmMTY1NDAucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.GpgTUN4SQAWiQje8OfbRNO4aWKm7vkYRsH8K0b4wJ3k](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0cab738a-6e50-4d05-9999-4aa73bf635df/dg9r63p-7aae8392-3294-48a1-983a-093afec2c88e.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzBjYWI3MzhhLTZlNTAtNGQwNS05OTk5LTRhYTczYmY2MzVkZlwvZGc5cjYzcC03YWFlODM5Mi0zMjk0LTQ4YTEtOTgzYS0wOTNhZmVjMmM4OGUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Lj9tN9a_6ccwQC9PYLFmqwTbjSfAEiBY0swUt7ClWZI)">](https://www.deviantart.com/kaffpixels/gallery) [<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9cbba6e5-cffe-4537-a24a-305b77e34fb7/dj1jj8v-9ee07ee1-d44b-4d3a-b2cf-c9fbad73d315.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzljYmJhNmU1LWNmZmUtNDUzNy1hMjRhLTMwNWI3N2UzNGZiN1wvZGoxamo4di05ZWUwN2VlMS1kNDRiLTRkM2EtYjJjZi1jOWZiYWQ3M2QzMTUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.skjLYJ9hjRpEpPBo6OH5d4WU_tDn5kuCoUW-AHE62a8">](https://antiproshipper.tumblr.com/arguments) <img src="https://64.media.tumblr.com/5465facafedb0ce277bfb465590ae8e5/2b169c13e35acff4-72/s75x75_c1/77c05d781dce7c1e26d1c03a2bc28fe48725cad9.webp"> <img src="https://64.media.tumblr.com/22310d5c92b7e33f1167d830542a07d5/2b169c13e35acff4-d8/s75x75_c1/0427a3ee2141ce92de9b2367815a231f5c76cf96.webp"> </br> [CARRD](https://darkrosedevil.carrd.co/) [PRNNS PAGE](https://en.pronouns.page/@darkrosedevil) [LINKTREE](https://bit.ly/07drd)
+</br> <img src="https://64.media.tumblr.com/991499a251521c85cfcc6fc52249d3ce/f79c598f898388b6-8e/s250x400/73a1df96bf2eb41749cdc768f50b0d1419c9d56a.gifv">
+</br> 
+</br>
+</br>
+</br> 
+[<img src="https://64.media.tumblr.com/c1f09e768b87a0f377535210d210e950/200072f17999adcb-8d/s250x400/477101212f17c25d2962ed38d5b268a5d481dd94.gifv">](https://www.tumblr.com/cryptic-science) <img src="https://64.media.tumblr.com/4fea32b65c34ccec772c032e73fd016f/f79c598f898388b6-28/s250x400/a66eb00a7900ec1f1fda8f5f90ad298862be28e3.gifv"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbd06e6e-b313-4acc-80d7-2f76026c8171/dg5l9b7-cc2290a7-02c1-4a7a-ae90-845ed58c7526.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2RiZDA2ZTZlLWIzMTMtNGFjYy04MGQ3LTJmNzYwMjZjODE3MVwvZGc1bDliNy1jYzIyOTBhNy0wMmMxLTRhN2EtYWU5MC04NDVlZDU4Yzc1MjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.8nCESGqUA0sFIbUnhC3iYTBKdf0CpSj9Rzutn22keNY"> 
+</br>
+</br> 
+</br> 
+<img src="https://64.media.tumblr.com/4139a3db0c0b12bf0b312c0e44c86a04/66f8bee48421ca35-91/s250x400/29bcc96a871a4f31c55e07d1144159ffd18ff3f5.gifv"> 
+</br> [<img src="https://64.media.tumblr.com/c8f0ef3e0babdc578632ae5b0c2173d9/6ad1ec31bad5887a-bb/s250x400/8451f509e468205f116d8faef2b72f88ea793094.webp">](https://www.tumblr.com/codeleather/) <img src="https://64.media.tumblr.com/b06571b665f7adbe13edfb648f193e00/6ad1ec31bad5887a-58/s250x400/07cad3a2d33c3bd7e42dd96039415a58ed3ff7e8.webp"> <img src="https://64.media.tumblr.com/6f4975d816542ff797fe0c5007cc5771/6ad1ec31bad5887a-f3/s250x400/689d6c33a1fff6093b305084de31aefee44f9728.gifv"> 
+</br> <img src="https://64.media.tumblr.com/ed3cb0c560a6884583150ccf849ca2e6/3347c16333dd2347-44/s250x400/2bc2927fed574a32d41c5a85e2ecc2682d1049e3.gifv"> [<img src="https://64.media.tumblr.com/c0ef2ea079b432c2d62cf5dc7fd51d14/6dc8898458942376-7a/s250x400/0ca7551976ed4b7c2a520cc0da8845d2191450c6.gifv">](https://cdn.theatlantic.com/thumbor/Er7vK5JSdS1voeQg05sL1C09Kmw=/80x16:1280x916/1200x900/media/img/mt/2014/09/The_More_You_Know/original.png)
+</br>
+</br> 
+</br> 
+<img src="https://64.media.tumblr.com/c6e9fc373d4e23fa53a41635fdff2878/66f8bee48421ca35-27/s250x400/32f3d1f77f11f4395529503e59a1a52883da8f43.gifv">
+</br>
+</br> 
+</br> 
+<img src="https://64.media.tumblr.com/fef73f6e41bd21177a19e52d98418cf9/d9a51647906ed89a-d3/s250x400/446bc738efaf1b44b44dd187af8159b5f20341ba.gifv">
